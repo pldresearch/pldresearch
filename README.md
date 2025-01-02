@@ -1,6 +1,6 @@
 Hi! This is the GitHub profile for the Diaconescu Group!
 
-Here is our webspage: https://diaconescugroup.wordpress.com/
+Here is our webpage: https://diaconescugroup.wordpress.com/
 Our X: https://x.com/diaconesculab?lang=en
 
 
